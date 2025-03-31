@@ -3,7 +3,7 @@ Group Members:
 
 Tlegenov Abzal
 
-FILL YOUR NAMES#1
+Kaldybayev Nurbol
 
 FILL YOUR NAMES#2
 
